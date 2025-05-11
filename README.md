@@ -1,5 +1,5 @@
 # ReGAIN
-- EYAd Ahmed Mahmoud
+- Eyad Ahmed Mahmoud
 - ABdelrahman Ahmed Nabil
 - Nada Ahmed Mamoun
 - Shahd mohmamed el sayed
