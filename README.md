@@ -7,8 +7,8 @@
 Team Members :
 - Eyad Ahmed Mahmoud
 - Abdelrahman Ahmed Nabil
-- Nada Ahmed Mamoun
+- Nada Ahmed Maamoun
 - Shahd mohmamed el sayed
-- Menna esmat 
+- Menna esmat abd elghani
 
 https://drive.google.com/drive/folders/1CEDwaVlPFgiXQTHkBDT6ClnXsdXFQ67q?usp=drive_link
